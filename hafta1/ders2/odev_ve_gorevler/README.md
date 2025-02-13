@@ -1,0 +1,1 @@
+<h1>Verien "Bilmediğiniz, eksik olduğunuz konulara çalışmanız iyi olacaktır." görevi temel python konuları gözden geçirilerek tamamlandı.</h1>

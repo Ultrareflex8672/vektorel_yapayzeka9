@@ -1,0 +1,1 @@
+<h1>Verien "Generative AI ile bulduğunuz sunuda olan ve olmayan güzel uygulamları sonraki deste bizimle paylaşmak üzere inceleyin" görevine istinaden araştırma inceleme yapıldı, sunuda bulunmayan "DeepSeek" adlı AI derste önerildi.</h1>
